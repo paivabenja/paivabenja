@@ -1,1 +1,1 @@
-pa que mierda esta este repo
+aguante el counter el geometry dash el fernet y la vela puerca
